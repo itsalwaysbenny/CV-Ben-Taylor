@@ -1,4 +1,6 @@
 ## Ben Taylor
+[Projects](#projects) | [Skills](#skills) | [Education](#education) | [Work Experience](#work-experience) | [Interests](#interests) |
+
 I am an ambitious and enthusiastic full stack junior developer. Since April 2017 I have been at Makers Academy, a 12 week intensive coding bootcamp, while there I have built the foundation for a career in software development. My time at Makers Academy has given me important characteristics to base my future development around including best practices, writing clean, readable code and the ability to quickly pick up new skills. I am looking to further my programming knowledge in a job role which will provide with support for my development in a challenging, exciting future in the tech industry.
 
 ### Projects
