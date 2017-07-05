@@ -20,8 +20,8 @@ For a full list see [My GitHub](https://github.com/itsalwaysbenny)
  I have always been a hard working and dedicated individual in any job role I have undertaken. Now as I look to change career I am showing a heightened sense of dedication within full time education and looking for a successful new career path for the future.
  
 #### Inquisitive 
- Having an inquisitive nature has always brought great enjoyment when harvesting new knowledge. I have found coding to be a new
- and exciting challenge that I am by curious to continue in and look forward to working in a new career which will provide daily mental challenges.
+ Due to having an inquisitive nature I have always found great enjoyment gaining new knowledge. Coding has been a new
+ and exciting challenge which I am eager to continue in. I am looking forward to working in an environment and industry which will provide constant challenges and fulfilment.
  
 #### Team player 
  In past employment I have always enjoyed working within, and managing a team. Perspective from both sides gives an insight into
@@ -61,4 +61,4 @@ July 2011-March 2014: - Wynyard Hall Country House Hotel, Wellington Restaurant-
 - Sports: I am an avid football and cricket fan as well as other sports. I also enjoy the gym, hiking and table tennis.
 - Music: I am a regular concert goer and am currently learning to play guitar
 - Podcasts: I have found a wide range of podcasts to listen to regularly including comedy, science, news and interviews
-- Comedy: I often go to comedy clubs becuase who doesn't need a laugh
+- Comedy: I often go to comedy clubs because who doesn't need a laugh
