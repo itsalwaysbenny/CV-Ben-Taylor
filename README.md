@@ -51,7 +51,7 @@ For a full list see [My GitHub](https://github.com/itsalwaysbenny)
  
 ### Work Experience 
 
-September 2014 - March 2017: – Premier Cheese Ltd - Artisan Cheese sales
+September 2014 - March 2017: – Premier Cheese Ltd - Artisan Cheese sales - Area Manager London
 
 April 2014- September 2014: - Launceston Place Restaurant - Chef de Rang
 
