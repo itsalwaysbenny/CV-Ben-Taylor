@@ -58,7 +58,7 @@ April 2014- September 2014: - Launceston Place Restaurant - Chef de Rang
 July 2011-March 2014: - Wynyard Hall Country House Hotel, Wellington Restaurant- Assistant Restaurant Manager/Acting Restaurant Manager
 
 ### Interests
-- Sports: I am an avid football and cricket fan as well as other sports. I also enjoy the gym, hiking and table tennis.
+- Sports: I am an avid football and cricket fan as well as other sports. I also enjoy the gym, hiking and table tennis
 - Music: I am a regular concert goer and am currently learning to play guitar
 - Podcasts: I have found a wide range of podcasts to listen to regularly including comedy, science, news and interviews
 - Comedy: I often go to comedy clubs because who doesn't need a laugh
